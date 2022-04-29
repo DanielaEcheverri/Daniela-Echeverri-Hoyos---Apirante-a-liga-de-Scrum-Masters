@@ -1,3 +1,8 @@
-# Daniela-Echeverri-Hoyos---Apirante-a-liga-de-Scrum-Masters
-# Daniela-Echeverri-Hoyos---Apirante-a-liga-de-Scrum-Masters
-# Daniela-Echeverri-Hoyos---Apirante-a-liga-de-Scrum-Masters
+Reto aspirante a liga de scrum
+
+El link de los videos son : 
+
+https://youtu.be/TBAim5yAEKA
+
+https://youtu.be/IozFsqRG-TU
+
